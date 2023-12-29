@@ -4,6 +4,7 @@ saya suka anu
 my prononus are He / not him (cause i never be him) :pensive:
 
 Me when there is...  (selengkapnya)
+
 ![alt text](https://github.com/penicili/penicili/blob/main/walk.gif?raw=true)
 
 
