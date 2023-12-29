@@ -2,7 +2,7 @@ Halo, saya bagas
 saya suka anu
 
 my prononus are He / not him (cause i never be him) :pensive:
-![alt text](https://github.com/penicili/penicili/blob/main/walk.gif)
+![alt text](https://github.com/penicili/penicili/blob/main/walk.gif?raw=true)
 
 
 <!--
