@@ -1,6 +1,9 @@
 Halo, saya bagas
 saya suka anu
 
+my prononus are He / not him (cause i never be him) :pensive:
+![alt text](https://tenor.com/en-GB/view/misato-misato-walk-godsato-nge-evangelion-gif-23775671)
+
 
 <!--
 **penicili/penicili** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
