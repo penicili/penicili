@@ -1,7 +1,7 @@
 # Halo, saya Bagas 
 saya suka anu
 
-my prononus are He / not him (cause i never be him) :pensive:
+My prononus are He / not him (cause i'll never be him) :pensive:
 
 Me when there is...  (selengkapnya)
 
