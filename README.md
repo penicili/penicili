@@ -1,4 +1,4 @@
-# Halo, saya bagas 
+# Halo, saya Bagas 
 saya suka anu
 
 my prononus are He / not him (cause i never be him) :pensive:
