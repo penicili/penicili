@@ -3,7 +3,6 @@ saya suka anu
 
 My prononus are He / not him (cause i'll never be him) :pensive:
 
-Fun fact about me: i love soggy noodles
 
 Me when there is...  (selengkapnya)
 
