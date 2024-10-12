@@ -6,7 +6,7 @@ My prononus are He / not him (cause i'll never be him) :pensive:
 
 Me when there is...  (selengkapnya)
 
-![alt text](https://github.com/penicili/penicili/blob/main/walk.gif?raw=true)
+<!-- ![alt text](https://github.com/penicili/penicili/blob/main/walk.gif?raw=true) -->
 
 
 <!--
