@@ -1,6 +1,8 @@
 # Halo, saya Bagas 
 saya suka anu
 
+Information systems student // learning anything im in mood for
+
 My prononus are He / not him (cause i'll never be him) :pensive:
 
 
